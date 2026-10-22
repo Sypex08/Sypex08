@@ -1,8 +1,3 @@
-so gut?
-
-
-
-
 # Hey👋
 
 I'm a young student from Germany 🇩🇪 who loves doing nerdy stuff in my free time.
